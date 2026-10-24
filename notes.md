@@ -1,0 +1,1 @@
+Hola, soy Esther y me gusta mucho pasar tiempo con mi familia y amigos, escuchar música y ver series. También me gusta hacer rutas de senderismo y buscar actividades interesantes para compartir en familia.
